@@ -8,5 +8,4 @@ Anna laughed. “Of course, Leo! You have a knack for finding things. But how ca
 
 “Simple!” Leo croaked confidently. “I know the park better than anyone. We just have to follow my frog instincts and maybe hop into some misadventures!”
 
-Anna clapped her hands. “Let’s do it! Where do we start?”
 
