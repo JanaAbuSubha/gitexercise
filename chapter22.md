@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 2
 
 They decided to search near the big oak tree, where some children were enjoying a game of tag. As they approached, Cleo exclaimed, “Look, those kids are laughing! Maybe they know something about a magic wand!”
 
