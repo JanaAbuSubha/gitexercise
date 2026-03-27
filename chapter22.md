@@ -12,7 +12,6 @@ The kids gathered around as the little girl clapped her hands and a turtle began
 
 After the turtle dance, the kids shook their heads. “No wands here, just a dancing turtle!” said another boy, who looked very proud of their discovery.
 
-“That was amazing!” Leah laughed. “Thanks anyway!” 
 
 Next, they hopped over to the fountain, where an artist was painting. Leah asked him, “Have you seen a magic wand? I really need one to become a great magician!”
 

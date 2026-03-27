@@ -34,8 +34,6 @@ Mr. Lenoir smiled as he handed it to her. “May your magic bring laughter and j
 
 Leah and Cleo left the store, and under the setting sun, they felt they could take on the world. 
 
-“Do you think this wand will make me famous?” Leah asked.
-
 Cleo, with a twinkle in his eyes, replied, “With you in charge, I’m sure it will be the most hilarious magic show ever!”
 
 And so, they headed back to the park, ready to share their adventures, knowing together they could make every moment a bit more magical and a lot more fun.
