@@ -1,4 +1,4 @@
-# Chapter 3
+# Middle 3
 
 As Anna walked through the park, she imagined the wonderful performances she could give with such a wand. “If I find it, I’ll be the greatest magician in all of New Orleans!” she said out loud, her eyes sparkling with excitement. Just then, Leo hopped beside her, his green skin glistening in the sunlight.
 

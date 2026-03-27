@@ -1,4 +1,4 @@
-# Chapter 4
+# The End
 
 With that, Cleo jumped into the fountain, causing a fountain of water to splash everywhere. Leah giggled as the artist laughed and tried to cover his painting from the splatter. “Go, Cleo! Find that wand!”
 
